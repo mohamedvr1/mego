@@ -1,2 +1,2 @@
 # mego
-bot
+bot 1xbet 
